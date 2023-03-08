@@ -1,1 +1,3 @@
-# courses
+# Courses
+The scope of digital marketing in USA has been growing and is on the rise and for that erason many people offer [courses](http://courseappnow.com/) to get started . There are tons of jobs in the field of digital marketing that too with handsome salaries so the scope of digital marketing in US is high and it will continue to be in demand.
+Marketing is a good major because it's extremely versatile and may lead to a variety of high paying, in-demand careers, with great job satisfaction and opportunities for on-going education. Marketing majors may pull in $50k to $208k a year. The Top 10% of earners pulled in over $208,000!
